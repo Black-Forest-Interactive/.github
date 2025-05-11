@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Discord Channel https://discord.gg/s2KPrswPWc
+Discord Channel https://discord.gg/tu5N7Cr2
 
 <!--
 
